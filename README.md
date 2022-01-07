@@ -13,14 +13,16 @@ Download and enjoy.
 
 # Some of the Screenshots are
 
-![WhatsApp Image 2022-01-07 at 1 26 04 PM](https://user-images.githubusercontent.com/20013230/148534935-f4a0ae09-6ffe-4430-84e7-43e9fe12cf55.jpeg)
+![WhatsApp Image 2022-01-07 at 1 26 04 PM](https://user-images.githubusercontent.com/20013230/148535889-18a39d33-67da-48be-866f-629f4be547fe.jpeg)
 
-![WhatsApp Image 2022-01-07 at 1 26 51 PM](https://user-images.githubusercontent.com/20013230/148534945-a719317d-7474-4472-81da-8436ad2c8a6e.jpeg)
+![WhatsApp Image 2022-01-07 at 1 26 51 PM](https://user-images.githubusercontent.com/20013230/148535910-9a139c75-58fe-48fe-87fc-bea76706ed16.jpeg)
 
-![WhatsApp Image 2022-01-07 at 1 26 54 PM](https://user-images.githubusercontent.com/20013230/148534956-6e7adb4d-a8ea-4e22-81af-0f795e9e0c1e.jpeg)
+![WhatsApp Image 2022-01-07 at 1 26 54 PM](https://user-images.githubusercontent.com/20013230/148535918-43665030-29f0-4f78-856f-22dfef4c3bd1.jpeg)
 
-![WhatsApp Image 2022-01-07 at 1 26 58 PM](https://user-images.githubusercontent.com/20013230/148534972-3cb852e3-9413-4dbb-b44b-5a1eeec5229d.jpeg)
+![WhatsApp Image 2022-01-07 at 1 26 58 PM](https://user-images.githubusercontent.com/20013230/148535923-5de62a1f-bd16-4da8-a369-ef8e5e100c33.jpeg)
 
-![WhatsApp Image 2022-01-07 at 1 27 02 PM](https://user-images.githubusercontent.com/20013230/148534980-6f2cdd1e-2ee9-48d5-a3ab-177c81a56b95.jpeg)
+![WhatsApp Image 2022-01-07 at 1 27 02 PM](https://user-images.githubusercontent.com/20013230/148535933-573050a9-00a2-4921-88ce-87145c91911d.jpeg)
 
-![WhatsApp Image 2022-01-07 at 1 27 07 PM](https://user-images.githubusercontent.com/20013230/148534986-c12cfcba-5a2f-4019-876c-6cf7b348a0fd.jpeg)
+![WhatsApp Image 2022-01-07 at 1 27 07 PM](https://user-images.githubusercontent.com/20013230/148535942-f35fb97c-2d53-44a1-9f87-8e429483400f.jpeg)
+
+
